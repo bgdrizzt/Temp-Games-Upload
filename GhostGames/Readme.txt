@@ -1,0 +1,1 @@
+Ooopsies looks like I have not gotten acces to the latest version of this game project as of now, will get to it as soon as I am able hopefully by thursday (if it is recoverable via Diverson else I guess I will have to upload the very old and very unfinished, buggy version instead of just one that needs to get better grapcis and a few more gameplay segments and polish)

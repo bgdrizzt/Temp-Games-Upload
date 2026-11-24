@@ -1,0 +1,1 @@
+/home/asd/Unity projects/PhoneGameWithSave/Library/Bee/artifacts/Android/il2cppOutput/cpp
